@@ -1,18 +1,18 @@
 <a href="https://win-money.click/?brand=LottoAgent&source=github.com" target="_blank">
-<img width="317" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Lotto%20Agent-1565C0?style=flat" />
+<img width="317" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Lotto%20Agent-AD1457?style=plastic" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=LottoAgent&source=github.com" target="_blank">
-<img width="188" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Lotto%20Agent-1565C0?style=flat" />
+<img width="188" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Lotto%20Agent-AD1457?style=plastic" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=LottoAgent&source=github.com" target="_blank">
-<img width="220" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Lotto%20Agent-1565C0?style=flat" />
+<img width="220" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Lotto%20Agent-AD1457?style=plastic" />
 </a>
 
-![Lotto Agent](33-5233.png)
+![Lotto Agent](334-3566.png)
 
 <h2>Лотто Эйджент Казино: Практическое руководство для посетителей 🚀</h2>
 <p>Lotto Agent — это не просто онлайн-платформа, а комплексный сервис, предоставляющий доступ к международным лотереям и казино-играм, и данное руководство поможет вам максимально эффективно использовать его возможности.</p>
